@@ -25,5 +25,5 @@ I am a results-oriented Software Engineer with over 3 years of experience in bac
 
 ### 📫 Connect with Me
 - **LinkedIn:** [linkedin.com/in/kosgey-laban](https://www.linkedin.com/in/kosgey-laban/)
-- **Email:** labankosgey@proton.me
+- **Email:** kipkosgeilaban98@gmail.com, devynlab@gmail.com, labankosgey@proton.me
 - **Location:** Nairobi, Kenya 🇰🇪
